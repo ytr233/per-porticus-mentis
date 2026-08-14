@@ -1,4 +1,6 @@
-# Reading List
+# Per Porticus Mentis
+
+*A reading list gathered while pacing the corridors of my mind.*
 
 ## Opened August 14, 2026
 
